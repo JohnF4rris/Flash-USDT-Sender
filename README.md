@@ -5,8 +5,8 @@ __Tool is Working Stable With Fastest Transcations in The Market. USDT Flashing 
 Flash USDT Tool Provide Understandable, Basic and Minimal Interface and Powerful Limitations.</br>
 #1 USDT Flash Software from https://usdtflash.cc for Your Deals.__
 
-<a href="https://usdtflash.cc/#purchase">
-<img src="ttps://i.ibb.co/myNL0hJ/Z2.png">
+<a href="https://usdtflash.cc/#features">
+<img src="https://i.ibb.co/myNL0hJ/Z2.png" alt="usdt flash software">
 </a>
 
 ## Fastest Performance
@@ -21,7 +21,9 @@ Flash USDTs are transferable and withdrawable. It can make multiple "jumps", tha
 **👤For Important Cases & Contact:** contact@usdtflash.cc
 <br>
 <br>
+<a href="https://usdtflash.cc/#plans">
 <img src="https://i.ibb.co/FDGbJfY/usdtflasherplans.png" alt="usdtflashplans">
+</a>
 
 
 ## Features
